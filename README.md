@@ -196,6 +196,7 @@ You can also join our group on [Facebook](https://www.facebook.com/groups/hiring
 |BNP Paribas|✅|Update in the coming days. No plans to cancel as of now.|
 |Boeing|✅|Considering remote.|
 |BP|✅|Will be virtual.|
+|Capital Group|✅|Remote Internships. Honoring all offers.|
 |Capital One|✅|Remote Internships|
 |Carvana|✅|Hiring Freeze|
 |Chartbeat|✅|Honoring all of its internships and all of its offers to former interns. If WFH on the "start date" new interns and employees will start working on that day, just remotely.|
